@@ -1,5 +1,5 @@
-🦖 Student of Design 🦖 
-✨ Learning UI/UX ✨ 
+🦖 Desginer🦖 
+✨ Learning PYTHON ✨ 
 💥 8 years of experience in Adobe package 💥
 
 Portfolio in my bio😃
